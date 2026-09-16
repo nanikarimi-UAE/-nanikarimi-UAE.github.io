@@ -1,2 +1,2 @@
-# -nanikarimi-UAE.github.io
+# nanikarimi-UAE.github.io
 About Me 😊
